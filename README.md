@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sandraike
 - 👀 I’m interested in Product Design
-- 🌱 I’m currently learning to design usable and aesthetic products that is able to scale.
+- 🌱 I’m currently improving my skills in designing usable and aesthetic products that is able to scale.
 - 💞️ I’m looking to collaborate on amazing design projects
 - 📫 How to reach me - sandraike45@gmail.com
 
